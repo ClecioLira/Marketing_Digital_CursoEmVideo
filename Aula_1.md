@@ -1,3 +1,5 @@
+## Fundamentos do marketing
+
 Marketing antigo: Mostrar e vender
 Marketing atual: Identificar e satisfazer necessidades.
 
