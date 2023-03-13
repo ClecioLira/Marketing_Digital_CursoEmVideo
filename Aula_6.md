@@ -1,4 +1,4 @@
-## Plano de marketing
+## Programa de marketing
 
 * A estratégia determina como os recursos serão alocados para atingir o objetivo.
 
